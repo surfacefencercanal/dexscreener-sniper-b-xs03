@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with high-frequency Token Sniper for dexscreener sniper bot | snipe-list-management & buy-pressure-analysis, the #1 dexscreener sniper bot. Includes
 
 
 
